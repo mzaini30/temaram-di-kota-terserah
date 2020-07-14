@@ -1,1 +1,0 @@
-# temaram-di-kota-terserah
